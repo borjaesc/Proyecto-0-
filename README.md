@@ -1,0 +1,1 @@
+Estoy acabando todos los ejercicios, quiero tenerlos todos, aunque teneis acceso ya a los que he terminado para que podais revisarlos. De igual manera, en cuanto tenga todos los metere en las carpetas tal y como se comenta. Gracias
